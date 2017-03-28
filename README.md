@@ -1,2 +1,2 @@
 # First-Try
-Just Trying and Try To Learn Mroe
+Just Trying and Try To Learn More
